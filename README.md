@@ -1,1 +1,1 @@
-# Diwali2023
+[# Diwali2023](https://chakravarti-pranjal.github.io/Diwali2023/)https://chakravarti-pranjal.github.io/Diwali2023/
